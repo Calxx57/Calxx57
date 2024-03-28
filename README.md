@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1178831547726581791/1217567748511502447/tenor.gif?ex=6616f454&is=66047f54&hm=05d5afbbc3a62566a8332700ebcbe08128af9e7ed000f3b6a167d5f91026a9e0&=&width=193&height=408)
+![](https://raw.githubusercontent.com/Calxx57/Calxx57/main/tenors.gif)
